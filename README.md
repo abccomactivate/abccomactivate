@@ -1,6 +1,7 @@
 ## Abc.com/activate
 # Abc.com/activate–Enter code- www.abc.com/activate
 [![Abc.com/activate](get-start.png)](https://sites.google.com/view/activatetvfubo/activate)
+
 American Broadcasting Company - ABC is a commercial TV and broadcast radio channel that is owned and operated by Disney Media Networks division of the Walt Disney Company. ABC is a network that offers ABC viewers can stream the seasons of their favorite shows, watch Live TV, get access to late-night news, GMA, and watch major events like The Oscars. ABC can be accessed through various streaming devices like Roku, Amazon Fire TV, Apple TV etc. To be able to use ABC on your mobile device, you'll have to enable ABC first. Below, you'll find an instruction for activating ABC on abc.com/activate.
 
 # Features of Abc.com/activate
